@@ -3,7 +3,6 @@
 🤫 meu nome e natan kaue
 
 -estou estudando na alura 
--estudo no vitor meireles
 -utilizo esse espaço para minha organização e para compartilhamento dos meus projetos
 
 ### para voce entrar em contato comigo📩
